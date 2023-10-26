@@ -1,2 +1,2 @@
 # winfry
-dsfok,[ldf,[eks
+my new malware
